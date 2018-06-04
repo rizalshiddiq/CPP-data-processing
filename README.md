@@ -15,4 +15,4 @@ There are 7 simple features
 
 Hope you like, enjoy it!
 
-> Thanks for my team support (Janaka and Andri)
+> Thanks for the support (My team: Janaka and Andri)
